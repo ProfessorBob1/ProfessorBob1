@@ -6,4 +6,4 @@
 
 - 📫 Você pode me contatar pelo meu e-mail: vbobadilha@educacao.sp.gpv.br
 
-![gargantua-interstellar](https://github.com/ProfessorBob1/ProfessorBob1/assets/169808106/f486bda9-621a-40a6-9e6e-b051297c6f20)
+![gargantua-interstellar](https://github.com/ProfessorBob1/ProfessorBob1/assets/169808106/68cc0279-87e6-4731-9daf-a8d2ca957378)
